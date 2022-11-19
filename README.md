@@ -1,0 +1,1 @@
+# morale-assistant.github.io
